@@ -1,4 +1,4 @@
-# 
+# advanced Affinity Photo para PC plugins é o melhor Affinity Photo para PC plugins com histórico de versões e controle de câmera. Seguro, confiável e otimizado para máximo
 
 
 
